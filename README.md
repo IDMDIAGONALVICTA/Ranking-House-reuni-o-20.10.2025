@@ -1,0 +1,1 @@
+# Ranking-House-reuni-o-20.10.2025
